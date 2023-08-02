@@ -2,7 +2,7 @@
 
 Here you can find all of my personal projects which I had locked away on my PC.
 
-If you want to contact me for whatever reason you seem fit my email is: robbie.mowforth@gmail.com
+If you want to contact me for whatever reason you seem fit my email is: robbie.cmowforth@gmail.com
 
 Happy Browsing!
 <!---
